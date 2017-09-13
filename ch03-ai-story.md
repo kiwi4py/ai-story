@@ -89,6 +89,4 @@ Dr. House进入一种癫狂状态，接着倒地，口吐白沫。几个高管�
 有生笑着说，这我写的。  
 “好吧，我正式宣布，你被蝙蝠公司录用了。”  
 
-# Seventeenth Lecture
-# General Theory of the Neuroses
-# The Meaning of the Symptoms 
+# Seventeenth Lecture General Theory of the Neuroses The Meaning of the Symptoms 
